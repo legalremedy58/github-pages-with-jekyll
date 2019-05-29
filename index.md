@@ -1,3 +1,3 @@
-# Welcome to my blog
+# The Life of a Wolmer's Boys School
 
-I'm glad you are here. I plan to talk about ...
+In this blog i will be sharing with you the life of a 13 year old 8th grader from Wolmer's Boys School
